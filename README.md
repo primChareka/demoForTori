@@ -1,1 +1,1 @@
-Hi My Name is Primtoes with a type
+Hi My Name is Primrose with no typo.
