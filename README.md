@@ -1,2 +1,2 @@
-Hi My Name is Primrose with no typo.
+Hi My Name is Tori with no typo.
 And I love tori!
